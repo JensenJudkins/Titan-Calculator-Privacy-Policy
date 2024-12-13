@@ -26,6 +26,6 @@ We reserve the right to update this Privacy Policy. Any changes will be reflecte
 
 **6. Contact Us**
 
-If you have any questions or concerns about this Privacy Policy, please contact us at [Insert Contact Email].
+If you have any questions or concerns about this Privacy Policy, please contact us using our company email.
 
 By using Titan Calculator, you agree to the terms of this Privacy Policy.
